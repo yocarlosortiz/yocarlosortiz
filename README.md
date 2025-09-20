@@ -1,1 +1,1 @@
-Passionate about tech, and strong coffee ... ☕️
+Strong coffee lover ... ☕️
